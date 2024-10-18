@@ -5,6 +5,5 @@
  ﾠ　 ﾠ　  ﾠ　  ﾠ　 ﾠ　 ﾠ　ﾠﾠ　ﾠﾠ　ﾠ　　ﾠ　　　ﾠ　ﾠ　 ﾠ<sub>.ೃ࿐ . . .  no **matter** the *cost* ,<sub>
 
  ﾠ　 ﾠ　 ﾠ　 ﾠ　 ﾠ　 ﾠ ﾠ　 ﾠ　 ﾠ　　 ﾠ　  ﾠ　ﾠ　 ﾠ　ﾠﾠ　ﾠﾠ　ﾠﾠ　 ﾠ　 <sub>do things **right** . ೄྀ࿐ ˊˎ-<sub>
-
-
- ﾠ　 ﾠ　  ﾠ　  ﾠ　 ﾠ　 ﾠ　ﾠﾠ　ﾠﾠ　ﾠ　ﾠ　　 ﾠ　ﾠﾠ　ﾠﾠ　ﾠ　ﾠ　ﾠ　 ![](https://komarev.com/ghpvc/?username=yvngrotten&color=cbe1a0&style=for-the-badge&label=˚₊·➳❥&base=4200)
+\
+　<p align="center"> ![](https://komarev.com/ghpvc/?username=yvngrotten&color=cbe1a0&style=for-the-badge&label=˚₊·➳❥&base=4200)
